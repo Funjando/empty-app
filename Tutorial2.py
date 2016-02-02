@@ -1,0 +1,13 @@
+sntahoeu
+aoe
+uao
+eu
+oaeu
+aoe
+uoea
+u
+aoeu
+oae
+uoa
+e
+aoeu
